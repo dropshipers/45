@@ -1,1 +1,2 @@
-# Project 404
+This is the project made by the dropers team.......
+It's not public and we have reason for that.
